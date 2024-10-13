@@ -1,2 +1,1 @@
-# nikilbadey.github.io
-muh website
+Hi! I am Nikil
